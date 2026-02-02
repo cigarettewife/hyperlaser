@@ -7,7 +7,7 @@ Hyperlaser / Seven
 
 //
 
-Ask to C+H, & touching ok, likely won't be responsive
+Ask to C+H. Touching is ok, likely won't be responsive
 
 If you need me to respond/want a guaranteed response,
 send me a whisper. It might be blunt/short but I'll respond.
